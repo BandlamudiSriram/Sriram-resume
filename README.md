@@ -1,2 +1,0 @@
-# Sriram-resume
-My Resume
